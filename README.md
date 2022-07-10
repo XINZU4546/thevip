@@ -1,0 +1,2 @@
+# thevip
+NO RENAME CLUB NO ABUSE CLUB
